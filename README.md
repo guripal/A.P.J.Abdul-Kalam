@@ -1,1 +1,2 @@
-# A.P.J.Abdul-Kalam
+Dr. APJ Abdul Kalam – a name that resonates with vision, determination, and inspiration. Born on October 15, 1931, in Rameswaram, Tamil Nadu, Dr. Kalam rose from humble beginnings to become one of the most respected figures in Indian history. A distinguished aerospace scientist, educator, and the 11th President of India, Dr. Kalam is fondly known as the Missile Man of India for his significant contributions to India's missile and nuclear programs.
+
